@@ -16,7 +16,7 @@ Desire
 
 Desire is the mind’s movement toward pleasure, achievement, or security. It motivates action, fuels ambition, and inspires creativity. Without desire, there would be little initiative or progress.
 
-Yet desire also attaches to conditions that are inherently impermanent. Relationships and accomplishments fade, material possessions deteriorate, and circumstances shift. When happiness depends entirely on what is temporary, vulnerability follows.
+Yet desire also attaches to conditions that are inherently impermanent. Relationships end, material possessions deteriorate, and circumstances shift. When happiness depends entirely on what is temporary, vulnerability follows.
 
 Desire is a natural and necessary part of human experience. Difficulty arises when desire hardens into attachment—when we believe lasting fulfillment depends on securing or maintaining what cannot endure indefinitely. Such attachment narrows awareness and heightens susceptibility to disappointment.
 
