@@ -25,7 +25,7 @@ Desire is a natural and necessary part of human experience. Difficulty arises wh
 
 Distress
 
-Distress arises when desire is frustrated or when life contradicts expectation. It manifests as anxiety, grief, anger, fear, or unease. Distress, like desire, is a natural feature of human consciousness.
+Distress arises when desires aren't met or when life contradicts expectation. It manifests as anxiety, grief, anger, fear, or unease. Distress, like desire, is a natural feature of human consciousness.
 
 Although often unwelcome, distress serves a valuable function: it exposes attachment. The intensity of suffering corresponds to the strength of dependency. When something we value is threatened or lost, distress reveals the mind’s investment in outcomes beyond its control.
 
