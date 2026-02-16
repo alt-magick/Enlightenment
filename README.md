@@ -51,6 +51,5 @@ Desire motivates engagement with the world.
 Distress highlights the consequences of attachment.
 Detachment allows clarity, balance, and intentional response.
 
-These three states are natural and interrelated. Personal and spiritual growth comes from recognizing desire without being unconsciously driven by it, understanding distress as a signal rather than punishment, and cultivating detachment as a deliberate practice of mindful awareness.
-
+These three states are natural and interrelated.
 External events may remain beyond control, but internal response can be refined. By navigating these states consciously, the mind develops insight, stability, and enduring peace.
