@@ -3,7 +3,6 @@ A Meditation
 
 ![meditation](meditation.png)
 
-Absolutely! Here’s the professional article formatted for a wiki, using typical wiki markup with headings, bold, and sections:
 
 
 ---
