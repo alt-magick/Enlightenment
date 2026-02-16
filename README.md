@@ -40,7 +40,7 @@ Detachment is a state of awareness in which experiences are observed without des
 
 Intentional detachment is the practice of allowing thoughts, feelings, and circumstances to arise and pass without clinging or aversion. It does not require withdrawal from life, nor does it suppress emotion. Instead, it fosters balance and clarity, enabling engagement with life while reducing entanglement with fleeting outcomes.
 
-In detachment, pleasure can be enjoyed without dependence, and difficulty can be faced without collapse. This state cultivates resilience, composure, and discernment. Many philosophical and spiritual traditions regard intentional detachment as central to enlightenment because it provides freedom from the turbulence caused by attachment.
+In detachment, pleasure can be enjoyed without dependence, and difficulty can be faced without fear. This state cultivates resilience, composure, and discernment. Many philosophical and spiritual traditions regard intentional detachment as central to enlightenment because it provides freedom from the turbulence caused by attachment.
 
 
 ---
@@ -53,4 +53,4 @@ Detachment allows clarity, balance, and intentional response.
 
 These three states are natural and interrelated. Personal and spiritual growth comes from recognizing desire without being unconsciously driven by it, understanding distress as a signal rather than punishment, and cultivating detachment as a deliberate practice of mindful awareness.
 
-External events may remain beyond control, but internal response can be refined. By navigating these states consciously, the mind develops insight, stability, and enduring peace. Ultimately, enlightenment is the recognition that all states—Desire, Distress, and Detachment—can be engaged with skillfully, allowing life to be experienced fully and wisely.
+External events may remain beyond control, but internal response can be refined. By navigating these states consciously, the mind develops insight, stability, and enduring peace.
