@@ -14,7 +14,7 @@ A practical way to understand this inner domain is through three states of consc
 
 Desire
 
-Desire is the mind’s movement toward acquisition, pleasure, achievement, connection, or security. It motivates action, fuels ambition, and inspires creativity. Without desire, there would be little initiative or progress.
+Desire is the mind’s movement toward pleasure, achievement, or security. It motivates action, fuels ambition, and inspires creativity. Without desire, there would be little initiative or progress.
 
 Yet desire also ties well-being to conditions that are inherently impermanent. Relationships evolve, accomplishments fade, material possessions deteriorate, and circumstances shift. When happiness depends entirely on what is temporary, vulnerability follows.
 
