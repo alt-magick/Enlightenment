@@ -36,7 +36,7 @@ By observing distress with awareness rather than reacting automatically, individ
 
 Detachment
 
-Detachment is a state of awareness in which experiences are observed without desire or distress. It is as natural as the other two states—part of the full spectrum of human consciousness—but it can also be cultivated intentionally.
+Detachment is a state of awareness in which experiences are observed without desire or distress. It is as natural as the other two states, but it can also be cultivated intentionally.
 
 Intentional detachment is the practice of allowing thoughts, feelings, and circumstances to arise and pass without clinging or aversion. It does not require withdrawal from life, nor does it suppress emotion. Instead, it fosters balance and clarity, enabling engagement with life while reducing entanglement with fleeting outcomes.
 
