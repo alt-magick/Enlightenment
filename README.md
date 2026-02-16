@@ -5,7 +5,7 @@ A Meditation
 
 ---
 
-Human experience is shaped not only by events, but by perception. We do not encounter reality in a purely objective form; rather, we interpret it through awareness, thought, and emotional response. While external circumstances are often unpredictable and temporary, our internal responses remain the most immediate and influential dimension of life. It is within this inner domain that meaning, suffering, and growth take shape.
+Human experience is shaped not only by events, but by perception. We do not encounter reality in a purely objective form; rather, we interpret it through awareness, thought, and emotional response. While external circumstances are often unpredictable and temporary, our internal responses remain the most immediate and real dimension of life. It is within this inner domain that meaning, suffering, and growth take shape.
 
 A useful way to understand this inner landscape is through three primary states of consciousness: Desire, Distress, and Detachment. These states are interconnected and together provide a clear framework for personal development and spiritual insight.
 
